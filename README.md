@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on HR and Data analysis projects using Excel,PowerBI,and Python
 - 📫 You can reach me via my mailbox folayemioladotun@outlook.com
 - or also reach me via my social media Handle:
-- LinkedIn:
+- LinkedIn: https://www.linkedin.com/in/folayemioladotun
 - 😄 Pronouns: She, Her0
 - ⚡ Fun fact: ...
 
